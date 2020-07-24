@@ -1,0 +1,1 @@
+Mix all the ingridients and greese the baking dish with oil or ghee and then pour the batter in baking dish and than put the dish in the steamer and the steamer on gas on medium flame for 20 mins.After 20 mins turn the flame off and then after 5 mins open the steamer and enjoy the brownie.
